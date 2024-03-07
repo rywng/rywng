@@ -1,4 +1,4 @@
-🐙🐙 Octolings are Real 🐙🐙
+くコ:彡 Are octolings real? くコ:彡
 
 Also, check out my octoring:
 
